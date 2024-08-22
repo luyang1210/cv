@@ -4,7 +4,7 @@
 School of Science Technology and Health  
 York St John University  
 Lord Mayor's Walk, York, YO31 7EX  
-[Google Scholar Profile](#)
+[Google Scholar Profile](https://scholar.google.com/citations?hl=en&user=GR9CGCUAAAAJ&view_op=list_works&sortby=pubdate)
 
 ## Education
 
